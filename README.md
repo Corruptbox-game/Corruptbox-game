@@ -2,7 +2,7 @@
 
 ## [Play Corruptbox Game Online >>>](https://corruptbox.world/)  
 
-![Corruptbox](https://storage.corruptbox.com/corruptbox1.jpg)  
+![Corruptbox](https://storage.corruptbox.world/corruptbox1.jpg)  
 
 **“Corruptbox”** is a groundbreaking puzzle series where creativity meets chaos. Explore games like *Corruptbox 1*, *Corruptbox 2*, and *Corruptbox 3*—each offering a unique mix of puzzles, eerie sounds, and glitch-inspired visuals. Solve challenges, harmonize corrupted sounds, and uncover secrets within surreal digital realms.  
 
